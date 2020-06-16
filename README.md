@@ -1,1 +1,1 @@
-# mechaniicusalexaprivacypolicy.github.io
+# mechaniicus.github.io
